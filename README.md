@@ -1,4 +1,5 @@
 # Política no Brasil
+Para aumentar sua participação política enquanto cidadão.
 
 ## Portais Interessantes
 - Governo do Brasil: http://www.brasil.gov.br/
